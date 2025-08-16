@@ -1,5 +1,5 @@
 ![](https://www.facebook.com/Thirdems)
 
-## Hi there 👋
+## Hi there Welcome!👋
 
-I am a person who value learning, growth, and building meaningful connections with others
+I am a person who value learning, growth, and building meaningful connections with others.
